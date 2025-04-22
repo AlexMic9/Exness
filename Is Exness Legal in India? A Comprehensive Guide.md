@@ -1,3 +1,5 @@
+# Is Exness Legal in India? A Comprehensive Guide for Traders in 2025
+
 The forex trading landscape in India is evolving rapidly, with platforms like **Exness** gaining traction among traders. Known for its low spreads, high leverage, and user-friendly interface, Exness is a global leader in online trading. However, a critical question looms large for Indian traders: **Is Exness legal in India?**
 
 💥 **Trade with Exness now**: [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or [Visit Brokers](https://one.exnesstrack.org/a/89rj8di4n7)
