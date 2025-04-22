@@ -42,7 +42,7 @@ Using a partner code in Exness offers several advantages for traders and affilia
 
 By adding a partner code, you not only enhance your trading experience but also support the affiliate who referred you, fostering a mutually beneficial relationship.
 
-## Step-by-Step Guide to Adding a Partner Code
+## How to Add Partner Code in Exness
 Adding a partner code in Exness is a straightforward process, but it requires careful attention to detail. Follow these steps to ensure you add the code correctly and unlock its benefits.
 
 ### Step 1: Create an Exness Account
