@@ -2,7 +2,7 @@
 
 Forex trading has surged in popularity across Nigeria, with millions of traders seeking opportunities to profit from the global currency markets. Among the numerous brokers available, **Exness** stands out as a prominent name. But the burning question for Nigerian traders is: **Is Exness a legit forex broker, or is it a scam?** In this in-depth review, we’ll explore Exness’s operations, regulatory status, trading conditions, user experiences, and more to help you decide if it’s a safe and reliable choice for trading in Nigeria.
 
-![Exness Logo](https://d3dpet1g0ty5ed.cloudfront.net/VN_Spreads_Stable_20pricing_20for_20unstable_20markets_3_33_Google_800x800.jpg)
+![Exness Logo](https://d3dpet1g0ty5ed.cloudfront.net/EN_SSA_Trade_every_opportunity_in_milliseconds_800x800.png)
 
 💥 **Trade with Exness now**: [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or [Visit Brokers](https://one.exnesstrack.org/a/89rj8di4n7)
 
@@ -85,7 +85,7 @@ Exness provides free webinars, tutorials, trading guides, and market analysis to
 ### 7. Customer Support
 Exness offers 24/7 customer support in multiple languages, including English, via live chat, email, and phone. Nigerian traders report responsive and helpful support.
 
-![Exness Logo](https://d3dpet1g0ty5ed.cloudfront.net/VI_Take_Control_800x800.png)
+![Exness Logo](https://d3dpet1g0ty5ed.cloudfront.net/EN_AF_625k_traders_choose_Exness_800x800.png)
 
 💥 **Trade with Exness now**: [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or [Visit Brokers](https://one.exnesstrack.org/a/89rj8di4n7)
 
