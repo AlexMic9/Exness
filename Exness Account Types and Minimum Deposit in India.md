@@ -297,4 +297,3 @@ Exness offers a diverse range of account types tailored to Indian traders, from 
 **Read more**:
 - [Is Exness good for scalping?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Good%20for%20Scalping%3F%20A%20Comprehensive%20Review%20for%20Forex%20Traders.md)
 - [Is Exness Sebi Registered in India?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Sebi%20Registered%20in%20India%3F%20A%20Comprehensive%20Review.md)
-- [
