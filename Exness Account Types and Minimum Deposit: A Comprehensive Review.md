@@ -312,7 +312,7 @@ Exness stands out in the crowded forex and CFD market for several reasons:
 Ready to trade with Exness? Follow these steps to set up your account and start trading:
 
 1. **Choose Your Account Type**: Review the comparison above to select the account that matches your goals and budget.
-2. **Register with Exness**: Visit [Exness.com](https://www.exness.com), complete the registration form, and verify your identity with the required documents (e.g., ID, proof of address).
+2. **Register with Exness**: Visit [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or [Visit Brokers](https://one.exnesstrack.org/a/89rj8di4n7), complete the registration form, and verify your identity with the required documents (e.g., ID, proof of address).
 3. **Fund Your Account**: Log in to the Exness client portal, choose a payment method, and deposit the minimum required amount.
 4. **Download a Platform**: Install MT4 or MT5 on your desktop or mobile device, or use the Exness Terminal for web-based trading.
 5. **Practice with a Demo Account**: Exness offers free demo accounts to test strategies risk-free before trading with real money.
