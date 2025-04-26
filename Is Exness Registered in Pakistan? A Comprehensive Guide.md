@@ -107,7 +107,7 @@ Despite the absence of SECP registration, Exness remains accessible to Pakistani
 
 ## Can Pakistani Traders Use Exness?
 
-Yes, **Pakistani traders can use Exness** to trade forex, CFDs, and other financial instruments. Exness is not banned in Pakistan, and its services are available through its global websites, such as [www.exness.com](https://www.exness.com) or regional domains. Traders can open accounts, deposit funds, and trade using Exness’s platforms without restrictions.
+Yes, **Pakistani traders can use Exness** to trade forex, CFDs, and other financial instruments. Exness is not banned in Pakistan, and its services are available through its global websites, such as [www.exness.com](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or regional domains. Traders can open accounts, deposit funds, and trade using Exness’s platforms without restrictions.
 
 However, because Exness is not regulated by the SECP, Pakistani traders should be aware of the following:
 
