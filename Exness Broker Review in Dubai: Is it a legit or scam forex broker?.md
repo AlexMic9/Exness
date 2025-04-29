@@ -274,3 +274,4 @@ For Dubai traders, Exness offers a secure and efficient trading environment, pro
 **Read more**:
 - [Exness Review Nigeria](https://github.com/AlexMic9/Exness/blob/main/Exness%20Review%20Nigeria%3A%20Is%20it%20a%20legit%20or%20scam%20forex%20broker%3F.md)
 - [Is Exness a Trusted Broker or Not?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20a%20Trusted%20Broker%20or%20Not%3F%20A%20Comprehensive%202025%20Review.md)
+- [Is Exness legal in Morocco?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Legal%20in%20Morocco%3F%20A%20Comprehensive%20Review.md)
