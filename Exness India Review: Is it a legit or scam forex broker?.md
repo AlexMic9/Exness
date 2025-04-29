@@ -384,4 +384,7 @@ Yes, Exness is beginner-friendly with its low minimum deposit, demo account, and
 
 💥 **Note**: To enjoy the benefits of the partner code, such as trading fee rebates, you need to register with Exness through this link: [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or [Visit Brokers](https://one.exnesstrack.org/a/89rj8di4n7)
 
-**Read More**: [How to add partner code in Exness](https://github.com/AlexMic9/Exness/blob/main/How%20to%20add%20partner%20code%20in%20Exness:%20A%20Comprehensive%20Guide.md)
+**Read More**: 
+- [How to add partner code in Exness](https://github.com/AlexMic9/Exness/blob/main/How%20to%20add%20partner%20code%20in%20Exness:%20A%20Comprehensive%20Guide.md)
+- [Is Exness registered in Pakistan?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Registered%20in%20Pakistan%3F%20A%20Comprehensive%20Guide.md)
+- [Is Exness legal in Turkey?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Legal%20in%20Turkey%3F%20A%20Comprehensive%20Review.md)
