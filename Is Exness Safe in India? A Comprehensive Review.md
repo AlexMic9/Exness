@@ -263,3 +263,8 @@ However, the lack of SEBI regulation and the legal restrictions on non-INR pairs
 Exness is a reliable and safe broker for Indian traders who adhere to local regulations and practice sound risk management. Start with a demo account, trade INR pairs, and use secure payment methods to maximize safety. Always stay informed about India’s forex laws to avoid legal pitfalls.
 
 💥 **Note**: To enjoy the benefits of the partner code, such as trading fee rebates, you need to register with Exness through this link: [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or [Visit Brokers](https://one.exnesstrack.org/a/89rj8di4n7)
+
+**Read more**:
+- [Is Exness Trusted broker in India?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Trusted%20Broker%20in%20India%3F%20A%20Comprehensive%20Review.md)
+- [Is Exness available to investors in India?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Available%20to%20Investors%20in%20India%3F%20A%20Comprehensive%20Review.md)
+- [What is leverage in Exness?](https://github.com/AlexMic9/Exness/blob/main/What%20is%20Leverage%20in%20Exness%3F%20A%20Comprehensive%20Guide%20for%20Traders.md)
