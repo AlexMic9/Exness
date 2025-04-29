@@ -406,3 +406,4 @@ If you’re a Pakistani trader seeking a trustworthy broker with excellent tradi
 **Read more**:
 - [Exness Review South Africa](https://github.com/AlexMic9/Exness/blob/main/Exness%20Review%20South%20Africa%3A%20Is%20it%20a%20legit%20or%20scam%20forex%20broker%3F.md)
 - [Exness Review Bangladesh](https://github.com/AlexMic9/Exness/blob/main/Exness%20Review%20Bangladesh%3A%20Is%20it%20a%20legit%20or%20scam%20forex%20broker%3F.md)
+- [How to open cent account in Exness](https://github.com/AlexMic9/Exness/blob/main/How%20to%20Open%20Cent%20Account%20in%20Exness%3A%20A%20Comprehensive%20Guide.md)
