@@ -148,3 +148,7 @@ No, but some rewards may require account verification. Complete KYC to access al
 **4. What happens if I forget to add a partner code during sign-up?**  
 You may need to create a new account or contact Exness support to check if the code can be added manually.
 
+**Read more**:
+- [Is Exness Banned in India?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Banned%20in%20India%3F%20A%20Comprehensive%20Guide.md)
+- [Is Exness regulated in South Africa?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Regulated%20in%20South%20Africa%3F%20A%20Comprehensive%20Review.md)
+- [Is Exness Banned by RBI in India?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Banned%20by%20RBI%20in%20India%3F%20A%20Comprehensive%20Review.md)
