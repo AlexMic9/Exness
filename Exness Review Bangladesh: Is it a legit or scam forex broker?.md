@@ -331,3 +331,4 @@ While there are minor drawbacks, such as limited educational resources in Bengal
 **Read more**:
 - [Exness Review Uganda](https://github.com/AlexMic9/Exness/blob/main/Exness%20Review%20Uganda%3A%20Is%20it%20a%20legit%20or%20scam%20forex%20broker%3F.md)
 - [Exness India Review](https://github.com/AlexMic9/Exness/blob/main/Exness%20India%20Review%3A%20Is%20it%20a%20legit%20or%20scam%20forex%20broker%3F.md)
+- [Is Exness a true ECN broker?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20a%20True%20ECN%20Broker%3F%20A%20Comprehensive%20Review.md)
