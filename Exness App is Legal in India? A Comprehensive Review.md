@@ -275,3 +275,8 @@ However, the lack of SEBI/RBI regulation places Exness in a **regulatory gray ar
 Exness offers a robust platform with low costs, advanced tools, and fast withdrawals, making it an attractive choice for Indian traders willing to navigate the legal landscape. Start with a demo account, trade responsibly, and stay informed about regulations to make the most of your forex trading journey.
 
 💥 **Note**: To enjoy the benefits of the partner code, such as trading fee rebates, you need to register with Exness through this link: [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or [Visit Brokers](https://one.exnesstrack.org/a/89rj8di4n7)
+
+**Read more**:
+- [How to open account in Exness in India](https://github.com/AlexMic9/Exness/blob/main/How%20To%20Open%20Account%20in%20Exness%20in%20India.md)
+- [Is Exness Regulated in Dubai?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Regulated%20in%20Dubai%3F%20A%20Comprehensive%20Review.md)
+- [Is Exness legal in Vietnam?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Legal%20in%20Vietnam%3F%20A%20Comprehensive%20Review.md)
