@@ -329,4 +329,7 @@ For South African traders seeking a cost-effective, regulated broker with fast e
 
 💥 **Note**: To enjoy the benefits of the partner code, such as trading fee rebates, you need to register with Exness through this link: [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or [Visit Brokers](https://one.exnesstrack.org/a/89rj8di4n7)
 
-**Read more**: [Is Exness Legal in India?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Legal%20in%20India%3F%20A%20Comprehensive%20Guide.md)
+**Read more**: 
+- [Is Exness Legal in India?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Legal%20in%20India%3F%20A%20Comprehensive%20Guide.md)
+- [Is Exness Regulated in UAE?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Regulated%20in%20UAE%3F%20A%20Comprehensive%20Review.md)
+- [Exness app is legal in Pakistan?](https://github.com/AlexMic9/Exness/blob/main/Exness%20app%20is%20legal%20in%20Pakistan%3F%20A%20Comprehensive%20Review.md)
