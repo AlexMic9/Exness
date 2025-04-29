@@ -285,3 +285,8 @@ If Exness doesn’t suit you, brokers like OANDA or eToro offer compelling alter
    MetaTrader 4, MetaTrader 5, Exness Web Terminal, mobile app, and social trading app.
 
 💥 **Note**: To enjoy the benefits of the partner code, such as trading fee rebates, you need to register with Exness through this link: [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or [Visit Brokers](https://one.exnesstrack.org/a/89rj8di4n7)
+
+**Read more**:
+- [Is Exness a ECN broker?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20a%20ECN%20Broker%3F%20A%20Comprehensive%20Review.md)
+- [Is XAUUSD Trading Legal In India?](https://github.com/AlexMic9/Exness/blob/main/Is%20XAUUSD%20Trading%20Legal%20in%20India%3F%20A%20Comprehensive%20Review.md)
+- [Is Exness legal in Poland?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Legal%20in%20Poland%3F%20A%20Comprehensive%20Review.md)
