@@ -239,3 +239,8 @@ However, the reliance on offshore regulation (FSA Seychelles) for Ugandan client
 If you’re a Ugandan trader seeking a trustworthy broker with low costs and flexible trading options, **Exness is worth considering**. Conduct your own research, verify the broker’s credentials, and trade responsibly to maximize your success in the forex market.
 
 💥 **Note**: To enjoy the benefits of the partner code, such as trading fee rebates, you need to register with Exness through this link: [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or [Visit Brokers](https://one.exnesstrack.org/a/89rj8di4n7)
+
+**Read more**:
+- [Is Exness SEBI registered?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20SEBI%20Registered%3F%20A%20Comprehensive%20Review.md)
+- [Does Exness work in India?](https://github.com/AlexMic9/Exness/blob/main/Does%20Exness%20Work%20in%20India%3F%20A%20Comprehensive%20Review.md)
+- [Does Exness work in India?](https://github.com/EmmaMTP/Forex/blob/main/Does%20Exness%20Work%20in%20India%3F%20A%20Comprehensive%20Guide.md)
