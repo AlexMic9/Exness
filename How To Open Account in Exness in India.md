@@ -343,4 +343,7 @@ Yes, Exness offers trading in cryptocurrencies like Bitcoin and Ethereum, alongs
 Exness does not charge fees for deposits or withdrawals, but third ```markdown
 third-party providers may apply charges. Check with your payment provider for details.
 
-**Read more**: [How to add partner code in Exness](https://github.com/AlexMic9/Exness/blob/main/How%20to%20add%20partner%20code%20in%20Exness:%20A%20Comprehensive%20Guide.md)
+**Read more**: 
+- [How to add partner code in Exness](https://github.com/AlexMic9/Exness/blob/main/How%20to%20add%20partner%20code%20in%20Exness:%20A%20Comprehensive%20Guide.md)
+- [Why is Exness spread so high?](https://github.com/AlexMic9/Exness/blob/main/Why%20Is%20Exness%20Spread%20So%20High%3F%20A%20Deep%20Dive%20into%20Forex%20Trading%20Costs.md)
+- [How to open Exness account in MT5](https://github.com/AlexMic9/Exness/blob/main/How%20to%20Open%20Exness%20Account%20in%20MT5%3A%20A%20Comprehensive%20Guide.md)
