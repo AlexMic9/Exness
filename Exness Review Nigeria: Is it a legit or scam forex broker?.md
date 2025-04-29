@@ -222,3 +222,4 @@ Exness rarely offers bonuses, focusing instead on low spreads and transparent pr
 **Read more**:
 - [Exness Kenya Review](https://github.com/AlexMic9/Exness/blob/main/Exness%20Kenya%20Review%3A%20Is%20it%20a%20legit%20or%20scam%20forex%20broker%3F.md)
 - [Exness Review South Africa](https://github.com/AlexMic9/Exness/blob/main/Exness%20Review%20South%20Africa%3A%20Is%20it%20a%20legit%20or%20scam%20forex%20broker%3F.md)
+- [Is Exness Legal in Oman?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Legal%20in%20Oman%3F%20A%20Comprehensive%20Guide%20for%20Traders.md)
