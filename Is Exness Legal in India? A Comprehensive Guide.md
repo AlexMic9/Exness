@@ -225,3 +225,8 @@ Ultimately, the decision to trade with Exness depends on your risk tolerance, tr
 Before trading, consult a financial advisor or legal expert to ensure your activities align with Indian laws. With the right approach, you can harness Exness’s potential while staying on the right side of the law.
 
 💥 **Note**: To enjoy the benefits of the partner code, such as trading fee rebates, you need to register with Exness through this link: [Open An Account](https://one.exnesstrack.org/boarding/sign-up/a/89rj8di4n7) or [Visit Brokers](https://one.exnesstrack.org/a/89rj8di4n7)
+
+**Read more**:
+- [Is Exness SEBI registered?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20SEBI%20Registered%3F%20A%20Comprehensive%20Review.md)
+- [How to open Exness Pro account](https://github.com/AlexMic9/Exness/blob/main/How%20To%20Open%20Exness%20Pro%20Account:%20A%20Comprehensive%20Guide.md)
+- [Is Exness App legal in India?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20App%20Legal%20in%20India%3F%20A%20Comprehensive%20Guide%20for%20Traders.md)
