@@ -282,3 +282,4 @@ Visit Exness’s website or the official sites of CySEC, FCA, and other regulato
 **Read more**:
 - [Exness App is Legal in India?](https://github.com/AlexMic9/Exness/blob/main/Exness%20App%20is%20Legal%20in%20India%3F%20A%20Comprehensive%20Review.md)
 - [Is Exness safe in India?](https://github.com/AlexMic9/Exness/blob/main/Is%20Exness%20Safe%20in%20India%3F%20A%20Comprehensive%20Review.md)
+- [What is Exness app used for?](https://github.com/AlexMic9/Exness/blob/main/What%20is%20Exness%20App%20Used%20For%3F%20A%20Comprehensive%20Review.md)
